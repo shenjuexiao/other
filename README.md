@@ -1,1 +1,1 @@
-# another.shenjuexiao.com
+# other.shenjuexiao.com
